@@ -1,0 +1,1 @@
+olá quero ser adm
